@@ -1,16 +1,17 @@
-### Hi there 👋
+# Hi there 👋
+## I am Elian, I am a freelance Multimedia Artist.
 
-<!--
-**elianjpeg/elianjpeg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**Words through my verbalization capacity could not express my talent but I am passionate in what I do.**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+If you looking for someone to do your:
+
+- Facebook and Instagram Video Ads
+- YouTube Video
+- Social Media Video
+- Podcast
+- Business Branding/Product Video advertisement
+- Short Film
+- Wedding Film
+
+**INVITE ME AND LET'S TALK ABOUT HOW I CAN HELP YOU.**
